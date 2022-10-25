@@ -1,0 +1,1 @@
+Bakso kontol bakso kontol
